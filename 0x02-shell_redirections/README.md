@@ -1,0 +1,1 @@
+STDI\o redirictiona
